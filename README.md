@@ -1,4 +1,4 @@
-Hey there!
+Hey there! As you already know, I'm Barbara. 
 
 - I’m currently working on a piece of artwork!
 - I’m currently learning French. (see the line below this one)
