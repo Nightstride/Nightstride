@@ -1,4 +1,4 @@
-[ident] Hey there! As you already know, I'm Barbara. I have lame h- ok ok, I understand that you already read my short Bio, so there's no need to write it here. (It's also boring to do the same thing over, and over, and over, and over, and over, and over, and over, and over again.) 
+*Hey there! As you already know, I'm Barbara. I have lame h- ok ok, I understand that you already read my short Bio, so there's no need to write it here. (It's also boring to do the same thing over, and over, and over, and over, and over, and over, and over, and over again.)*
 
 - I’m currently working on a piece of artwork!
 - I’m learning French. (see the line below this one)
