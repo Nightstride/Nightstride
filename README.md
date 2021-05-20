@@ -1,7 +1,7 @@
-Hey there! As you already know, I'm Barbara. I have lame h- ok ok, I understand that you already read my short Bio, so there's no need to write it here. (It's also boring to do the same thing over, and over, and over, and over, and over, and over, and over, and over again.) 
+   Hey there! As you already know, I'm Barbara. I have lame h- ok ok, I understand that you already read my short Bio, so there's no need to write it here. (It's also boring to do the same thing over, and over, and over, and over, and over, and over, and over, and over again.) 
 
 - I’m currently working on a piece of artwork!
-- I’m currently learning French. (see the line below this one)
+- I’m learning French. (see the line below this one)
 - I’m looking for a French buddy who can also speak English. Help me with my French, please!
 - You can ask me about anything! (Except for Private Info, of course)
 - My pronouns are she/her
