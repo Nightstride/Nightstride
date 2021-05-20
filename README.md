@@ -1,4 +1,4 @@
-Hey there! As you already know, I'm Barbara. 
+Hey there! As you already know, I'm Barbara. I have lame h- ok ok, I understand that you already read my short Bio, so there's no need to write it here. (It's also boring) 
 
 - I’m currently working on a piece of artwork!
 - I’m currently learning French. (see the line below this one)
